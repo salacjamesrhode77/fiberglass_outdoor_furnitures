@@ -1,1 +1,1 @@
-# fiberglass_outdoor_furnitures
+# Repository for Fiberglass Outdoor Furniture Start-up Business
